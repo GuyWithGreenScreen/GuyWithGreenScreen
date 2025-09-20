@@ -1,7 +1,5 @@
-# Hello!
-I am GuyWithGreenscreen(Mark), really not sure what else to put here,
-if you want to know more about me
+MY *GITHUB* IS A MACHINE THAT TURNS *0 Commits in the last 12 decades* INTO *0 Commits in the last 12 decades*
+<br><sub>Haha Very original</sub>
 
-# [VISIT MY WEBSITE](https://www.gwgs.dev)
-
-# 🐔🐔🐓🐓🐓🐓🐓🐓🐓
+# [Waiter! waiter! Can I get some more average developer's website?](https://www.gwgs.dev)
+### Proud owner of the Canadian Organization for Coding Knowledge (C.O.C.K.) 🐔🐔🐓🐓🐓🐓🐓🐓🐓
